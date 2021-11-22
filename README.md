@@ -1,3 +1,3 @@
 # Hello-world
-learning git
-my name is tuan, and i am a beginer developer
+learning gi
+l;'op[iop[iop[p0
